@@ -10,3 +10,4 @@ My names are Chilangi Choonde Wesley, i'm a Second year student by the Universit
   you can reach me on;
 -  wesleychilangi24@icloud.com / wesleychilangi93@gmail.com
 -  my Whatsapp line's are 0979165508 / 0964039194
+-  [GitHub profile](https://github.com/INSERTDESCRIPTIONHERE19) follow this link to my GitHub profile.
